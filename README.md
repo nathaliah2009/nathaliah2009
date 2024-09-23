@@ -1,16 +1,17 @@
-## Hi there 👋
+## Oie amigas 🤍
 
-<!--
-**nathaliah2009/nathaliah2009** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+📎vsco.co/nathaliahoeckele
 
-Here are some ideas to get you started:
+🏡 Santa Lúcia PR
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🇪🇪 Grêmio
+
+📚 Ensino Médio
+
+🇻🇦 Católica
+
+✈️ viagens
+
+☀️ 🏖️
+
+![grêmio](https://media1.tenor.com/m/GCH4jHkF7l0AAAAd/su%C3%A1rez-luisito.gif)
